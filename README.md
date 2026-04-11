@@ -2,6 +2,8 @@
 
 <h1>if you have a sebastian solace plush, specifically the 2.0 one, that you want to resell, DM jay on discord I beg you ok? (_jay_x)</h1>
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Barrio&size=30&duration=2999&color=5A5A5A&width=435&lines=%E2%98%BE+%22+Romance+is+boring!!+%22+%E2%98%BD)](https://git.io/typing-svg) 
+
 ${\textsf{\color{#72b0a1} ⋆ GUUH either call me Elias oooor Vex..or both! }}$
 
 ${\textsf{\color{#72b0a1} ⋆ HE/HIM preferred, I'm AFAB by the way :3 }}$
