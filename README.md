@@ -17,5 +17,8 @@ ${\textsf{\color{#E6EFE6} ⋆ check my main account ok? thank you.. ok..}}$
 
 <img width="1220" height="400" alt="tumblr_341576514c83cc1ec4502d3dfeb0f2e1_da82f654_500" src="https://github.com/user-attachments/assets/b520ba48-9bc5-4abd-804f-c4dcdc22f95e" />
 
+![p is cheaper](https://github.com/user-attachments/assets/c9bd76af-71bd-40ec-9198-b955f1da942c)
+
+
 <img width="736" height="198" alt="5g3lob" src="https://github.com/user-attachments/assets/224c94c9-559a-4e4d-9dab-c6001c7c5658" />
 
